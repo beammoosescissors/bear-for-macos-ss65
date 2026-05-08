@@ -1,4 +1,4 @@
-
+Bear for macOS exclusive Script - calendar integration and multi-device sync offers the most advanced Bear for macOS script, with calendar integration and multi-device sync. Ideal
 
 
 
